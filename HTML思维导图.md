@@ -1,1 +1,0 @@
-![image]https://github.com/Beautiful-G/Zero-to-web-full-stack-engineer/blob/master/HTML%E6%80%9D%E7%BB%B4%E5%AF%BC%E5%9B%BE.jpg
